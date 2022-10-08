@@ -1,3 +1,7 @@
 # SUS
-https://user-images.githubusercontent.com/35660777/194682560-9eb65a7f-7aff-4d31-9aa1-ef36fc942dd7.mp4<br>
+https://user-images.githubusercontent.com/35660777/194682720-224fe6ef-922c-422f-9509-1b68bfa6bd41.mp4
+
+
+
+
 ｐｒｏｇｒａｍｉｎｇ　ｉｓ　ｓｕｓ
